@@ -1,1 +1,1 @@
-# prostheses.github.io
+# prosthes.es
